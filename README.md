@@ -1,1 +1,0 @@
-Akaryakıt  satış otomasyonu
